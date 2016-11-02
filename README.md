@@ -16,6 +16,18 @@ by Michel Lamontagne (http://michel-lamontagne.deviantart.com):
 
 https://3dwarehouse.sketchup.com/model.html?id=c90b9311-c283-4a9f-a251-197f711f8770
 
+![](https://github.com/MarsArtistsCommunity/ITS/blob/master/large_thumbnail-2.jpg)
+
+https://3dwarehouse.sketchup.com/model.html?id=689956af-c85c-4e0a-b239-9863a803a065
+
+
+# Interior Modeling 
+by Michel Lamontagne (http://michel-lamontagne.deviantart.com):
+
+![](https://github.com/MarsArtistsCommunity/ITS/blob/master/large_thumbnail-3.jpg)
+
+https://3dwarehouse.sketchup.com/model.html?id=c90b9311-c283-4a9f-a251-197f711f8770
+
 
 # Additional Resources:
 
